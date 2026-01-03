@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+I'm a physics and math major who's been lifting consistently for about a year.  I've seen some great gains and found the science very interesting.  There's a lot of misinformation about lifting out there, and a lot of people who are intimidated by the gym.  I hope to help show people the science behind the lifting, as well as get them into the gym to start improving themselves!  Remember, it was Socrates who said: "No man has the right to be an amateur in the matter of physical training. It is a shame for a man to grow old without seeing the beauty and strength of which his body is capable."
